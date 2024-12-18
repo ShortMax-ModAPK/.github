@@ -1,6 +1,6 @@
 # ShortMax Mod APK [Unlimited Coins] Download Free For Android
 
-| Ảnh vuông | [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://modhello.com/shortmax/)  |
+| ![Uploading images (1).png…]() | [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://modhello.com/shortmax/)  |
 |:-------------------------------------------------:|-----------------------|
 | Platform: SHORTMAX LIMITED                      | Version: 1.9.18    |
 | size: 77.83 Mb                                | ⭐️⭐️⭐️⭐️⭐️ (5/5) |
